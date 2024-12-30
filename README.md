@@ -7,4 +7,4 @@
 - 💬 Ask me about Data Analysis, Power BI, Tableau, and Data-Driven Decision Making.
 
 ### Connect with Me:
-[LinkedIn](www.linkedin.com/in/priyadharshini-s-524752245) | [Linktree](#)
+[LinkedIn](www.linkedin.com/in/priyadharshini-s-524752245) | [Linktree](https://linktr.ee/priyaselvan)
